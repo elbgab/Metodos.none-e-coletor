@@ -1,0 +1,1 @@
+# Metodos.none-e-coletor
